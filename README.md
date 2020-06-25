@@ -1,0 +1,2 @@
+# ssmi
+koreainchannamdonggusuchangdongLH1dangi110dong310ho
